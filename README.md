@@ -1,0 +1,2 @@
+# Scam.AlexandruAnom.uNAk
+SCAM FOR CRISTI AND ALL PERSON
